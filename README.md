@@ -1,7 +1,7 @@
 # WEB14202-Ricardo-Welch.
 
-## [Resaerch](https://drive.google.com/drive/u/1/folders/0B5RqY9wkQ1VWOUxVelBtVVVjR2s)
- ### Guide dogs UK
+## Resaerch
+ ### [Guide dogs UK](https://drive.google.com/drive/u/1/folders/0B5RqY9wkQ1VWOUxVelBtVVVjR2s)
 [https://www.sense.org.uk](https://www.sense.org.uk)
 
 [http://www.skipshowersforbeef.com/index.html](http://www.skipshowersforbeef.com/index.html)
@@ -29,7 +29,11 @@
 ### [Froodle](https://docs.google.com/presentation/d/17yBemX4EAaBqzdjbCTkVBJNxEUdRN7aloe-OOxeXBe4/edit#slide=id.p)
 
 
+## Brand Guide lines
 
+### [Guide dogs]
+
+### [Froodle](https://drive.google.com/drive/u/1/folders/1eHVNQHtioJkhlTvf7VbHOlARATdXwq4h)
 
 
 
