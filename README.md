@@ -19,6 +19,18 @@
 
 ### Froodle
 
+- [Joseph Maida](https://www.instagram.com/josephmaida/)
+- [Maciek Jasik](https://www.instagram.com/mjasik/)
+- [Aleksandra Kingo](http://aleksandrakingo.com/)
+
+- https://www.newscred.com/wp-content/themes/newscred/assets/downloads/guide/NewsCred_Millennial_Mind.pdf
+- https://insights.newscred.com/content-drives-millennial-brand-loyalty/
+- https://insights.newscred.com/welcome-to-the-performance-era-of-content-marketing/
+- http://www.thedrum.com/opinion/2017/07/31/which-brands-do-millennials-best
+
+- http://www.tate.org.uk/art/art-terms/p/pop-art
+- http://www.tate.org.uk/art/art-terms/i/independent-group
+- http://time.com/4428882/how-one-photographer-is-rethinking-pop-art/
 
 
 ## Presentations 
@@ -32,8 +44,17 @@
 ## Brand Guide lines
 
 ### Guide dogs
+<img src="https://i.imgur.com/gjvEvzh.jpg">
 
 ### [Froodle](https://drive.google.com/drive/u/1/folders/1eHVNQHtioJkhlTvf7VbHOlARATdXwq4h)
+
+
+
+## logos
+### Guide DOGS
+<IMG
+
+### FROODLE
 
 
 
