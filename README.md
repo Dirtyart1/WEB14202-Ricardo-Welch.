@@ -52,9 +52,19 @@
 
 ## logos
 ### Guide DOGS
-<imgsrc="https://src="https://froodle- 200x80.png">
+<img src="https://i.imgur.com/3JEY4n7.jpg" width="325">
+
 
 ### FROODLE
+<img src="https://i.imgur.com/HFFWfHG.jpg">
+<img src="https://i.imgur.com/v1ZF6LT.jpg" width="400">
+
+
+## Website
+
+### [Guide dogs](https://drive.google.com/drive/u/1/folders/0B5RqY9wkQ1VWazkwOWN2eG1Sekk)
+### [froodle](http://froodle.raveweb.net/froodle/)
+
 
 
 
