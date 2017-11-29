@@ -31,7 +31,7 @@
 
 ## Brand Guide lines
 
-### [Guide dogs]
+### Guide dogs
 
 ### [Froodle](https://drive.google.com/drive/u/1/folders/1eHVNQHtioJkhlTvf7VbHOlARATdXwq4h)
 
