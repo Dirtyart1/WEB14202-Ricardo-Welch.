@@ -52,7 +52,7 @@
 
 ## logos
 ### Guide DOGS
-<IMG
+<imgsrc="https://src="https://froodle- 200x80.png">
 
 ### FROODLE
 
